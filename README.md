@@ -38,13 +38,6 @@
   <p align="right"> ${\text{\color{#A0595D}i like alex g, devimcallion, kali uchis yahh}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
   <p align="right"> ${\text{\color{#8B4846}promise i don't bite you can int ૮ ⑅ . ֑ . ১}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p>
 
-<div align="center">
-    <img src="https://files.catbox.moe/3pju2e.png" />
-<div align="center">
-
-<br>
-<br>
-<br>
 <br>
 <br>
 <br>
@@ -53,4 +46,8 @@
 <br>
 <br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[graphic credits](https://www.tumblr.com/liminace-wings/806830723641245696/fragments-graphics)
+<div align="center">
+    <img src="https://files.catbox.moe/3pju2e.png" />
+<div align="center">
+    
 </div>⠀⠀⠀⠀⠀
