@@ -9,6 +9,7 @@
   <p align="right"> ${\text{\color{#81450C}mainly into seildirectory and mediamalleolus}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p>
 <br>
 <br>
+<br>
 
 <div align="right">
     <img src="https://readme-typing-svg.herokuapp.com?font=Abril+Fatface&size=25&pause=10000&color=C0B4BD&center=true&vCenter=true&width=600&lines=Could+I+go+on+break?" />
@@ -19,6 +20,7 @@
   <p align="left">⠀⠀⠀⠀⠀⠀⠀⠀ ${\text{\color{#3C5DAA}i use she/he pronouns, others are meh}}$ </p> 
   <p align="left">⠀⠀⠀⠀⠀⠀⠀⠀ ${\text{\color{#2F4A93}chronically ill + anxious , overthinker}}$ </p> 
   <p align="left">⠀⠀⠀⠀⠀⠀⠀⠀ ${\text{\color{#1A2861}i love my friends lots i try to benice}}$ </p>
+<br>
 <br>
 <br>
 
