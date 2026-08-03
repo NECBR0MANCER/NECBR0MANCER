@@ -40,8 +40,8 @@
 <br>
 <br>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Label](https://img.shields.io/badge/✧-Samecho_NR1_Fan-CDA320) ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=628FC3&label=Nilinstances) ![Label](https://img.shields.io/badge/꩜-Writin'_Speeches_In_My_Head-B87C6A)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Label](https://img.shields.io/badge/✧-Samecho_NR1_Fan-CDA320) ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=628FC3&label=Nilinstances) ![Label](https://img.shields.io/badge/꩜-Writin'_Speeches_In_My_Head-B87C6A)
 <br>
 <br>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[graphic credits](https://www.tumblr.com/liminace-wings/806830723641245696/fragments-graphics)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[graphic credits](https://www.tumblr.com/liminace-wings/806830723641245696/fragments-graphics)
 </div>⠀⠀⠀⠀⠀
