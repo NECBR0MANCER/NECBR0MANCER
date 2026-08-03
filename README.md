@@ -1,3 +1,7 @@
+<div align="center">
+    <img src="https://files.catbox.moe/mpbg4x.png" />
+<div align="center">
+
 <div align="left">
     <img src="https://readme-typing-svg.herokuapp.com?font=Abril+Fatface&size=25&pause=10000&color=F6DE7F&center=true&vCenter=true&width=600&lines=And+if+I+break" />
 <div align="left">
@@ -33,6 +37,11 @@
   <p align="right"> ${\text{\color{#B2717B}sam fictkin + beatzz c'link doubles r okay}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
   <p align="right"> ${\text{\color{#A0595D}i like alex g, devimcallion, kali uchis yahh}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
   <p align="right"> ${\text{\color{#8B4846}promise i don't bite you can int ૮ ⑅ . ֑ . ১}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p>
+
+<div align="center">
+    <img src="https://files.catbox.moe/3pju2e.png" />
+<div align="center">
+
 <br>
 <br>
 <br>
