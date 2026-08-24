@@ -9,7 +9,7 @@
   <p align="center"> ⠀ <img width="276" height="222" align="right" alt="echo" src="https://i.postimg.cc/d36HxvVM/tumblr-b2001f591f9d531713d9b6dd02883ae9-7ba5b04d-2048.png" /> 
   <p align="right"> ${\text{\color{#F0CB4A} interact with caution unless friends/mutuals}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p>
   <p align="right"> ${\text{\color{#EAB61A}do not copy, inspo is ok, w2i unless chatting}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
-  <p align="right"> ${\text{\color{#AF7B0E}i dont like samjake even if its my user fyi lol}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
+  <p align="right"> ${\text{\color{#AF7B0E}i dont like samjake even if youre wondering..}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p> 
   <p align="right"> ${\text{\color{#81450C}mainly into seildirectory and mediamalleolus}}$⠀⠀⠀⠀⠀⠀⠀⠀ </p>
 <br>
 <br>
