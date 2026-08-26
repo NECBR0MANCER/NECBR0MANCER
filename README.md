@@ -13,7 +13,7 @@
 <br>
 <div align="center">
     
-![label](https://komarev.com/ghpvc/?username=chanceglazer&color=628FC3&label=comments)
+![label](https://komarev.com/ghpvc/?username=chanceglazer&color=F4B1F7&label=comments)
 </div>
 <br>
 <br>
