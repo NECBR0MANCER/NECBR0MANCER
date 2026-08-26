@@ -12,7 +12,7 @@
   </div>
  <p align="center"> ${\text{\color{#F4B1F7}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
  <p align="center"> ${\text{\color{#FEE7ED}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin+beatzz c'linker ಌ}}$
- <p align="center"> ${\text{\color{#CCBFFE}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl ɞ 　𓂅　}}$ 
+ <p align="center"> ${\text{\color{#CCBFFE}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
 <br>
 <br>
 <br>
