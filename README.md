@@ -4,7 +4,7 @@
 <br>
 <br>
 
-   <p align="center">    <img width="468" height="438" alt="graphic" src="https://i.postimg.cc/BZDTtsjQ/graphic.png" />
+   <p align="center">    <img width="433" height="405" alt="graphic" src="https://i.postimg.cc/BZDTtsjQ/graphic.png" />
  <p align="center"> ${\text{\color{#F4B1F7}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
  <p align="center"> ${\text{\color{#FEE7ED}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin+beatzz c'linker ಌ}}$
  <p align="center"> ${\text{\color{#CCBFFE}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl ɞ 　𓂅　}}$ 
