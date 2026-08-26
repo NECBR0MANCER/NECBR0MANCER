@@ -5,6 +5,11 @@
 <br>
 
    <p align="center">    <img width="433" height="405" alt="graphic" src="https://i.postimg.cc/BZDTtsjQ/graphic.png" />
+
+  <div align="center">
+    
+[side](https://github.com/samuelfrnwilliams)　　[twt](https://x.com/samechoyaouri)　　[dni](https://rentry.co/basicdni)
+  </div>
  <p align="center"> ${\text{\color{#F4B1F7}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
  <p align="center"> ${\text{\color{#FEE7ED}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin+beatzz c'linker ಌ}}$
  <p align="center"> ${\text{\color{#CCBFFE}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl ɞ 　𓂅　}}$ 
