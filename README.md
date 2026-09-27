@@ -8,7 +8,7 @@
 
   <div align="center">
     
-[side](https://github.com/samuelfrnwilliams)　　[ata](https://samuelfrnwilliams.atabook.org/)　　[dni](https://rentry.co/basicdni)
+[side](https://github.com/samuelfrnwilliams)　　[ata](https://samuelfrnwilliams.atabook.org/)　　[twt](https://x.com/samechoyaouri)
   </div>
  <p align="center"> ${\text{\color{#F4B1F7}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
  <p align="center"> ${\text{\color{#FEE7ED}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin+beatzz c'linker ಌ}}$
