@@ -24,7 +24,7 @@
 <br>
 <div align="center">
     
-[art](https://x.com/yuuriii67/status/2090683183926784446/photo/1) [credits](https://x.com/yuuriii67/status/2089971803535872402/photo/1) [here](https://x.com/Kaden_dnki/status/2090619588090474614/photo/1)
+[art](https://x.com/cloudystormy98/status/2105030154288558094/photo/1) [credits](https://x.com/catfuner4l/status/2104870705674567890/photo/1)
     
 </div>⠀⠀⠀⠀⠀
 
