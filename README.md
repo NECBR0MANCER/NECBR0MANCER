@@ -11,7 +11,7 @@
 [side](https://github.com/samuelfrnwilliams)　　[ata](https://samuelfrnwilliams.atabook.org/)　　[twt](https://x.com/samechoyaouri)
   </div>
  <p align="center"> ${\text{\color{#ED8BBC}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
- <p align="center"> ${\text{\color{#F2C7AD}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin+beatzz c'linker ಌ}}$
+ <p align="center"> ${\text{\color{#F2C7AD}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin , sign ata ಌ}}$
  <p align="center"> ${\text{\color{#F2A1BC}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
 <br>
 <br>
