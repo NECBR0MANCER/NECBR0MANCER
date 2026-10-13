@@ -8,7 +8,7 @@
 
   <div align="center">
     
-[side](https://github.com/samuelfrnwilliams)　　[ata](https://samuelfrnwilliams.atabook.org/)　　[twt](https://x.com/samechoyaouri)
+[fluffle](https://fluffle.cc/ferns)　　[ata](https://samuelfrnwilliams.atabook.org/)　　[twt](https://x.com/samechoyaouri)
   </div>
  <p align="center"> ${\text{\color{#ED8BBC}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
  <p align="center"> ${\text{\color{#F2A1BC}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin , sign ata ಌ}}$
