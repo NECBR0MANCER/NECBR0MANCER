@@ -11,7 +11,7 @@
 [fluffle](https://fluffle.cc/ferns)　　[ata](https://devinwolf.atabook.org/)　　[twt](https://x.com/kittyfernful)
   </div>
  <p align="center"> ${\text{\color{#ED8BBC}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
- <p align="center"> ${\text{\color{#F2A1BC}𐔌 chronically ill　　minor(13) ﹏﹏　sam fictkin , sign ata ಌ}}$
+ <p align="center"> ${\text{\color{#F2A1BC}𐔌 chronically ill　　minor(13) ﹏﹏　devin c'link , sign ata ಌ}}$
  <p align="center"> ${\text{\color{#F2C7AD}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
 <br>
 <br>
