@@ -8,7 +8,7 @@
   </div>
  <p align="center"> ${\text{\color{#F2DABE} jasper　ᵒᵘ　snapple　　‿　　she ╱ he}}$ 
  <p align="center"> ${\text{\color{#FEC892} w2i　　4teen　　　　c+h enc　ヾ　iwcuf }}$
- <p align="center"> ${\text{\color{#FA94CF}＃　chronically  ill　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
+ <p align="center"> ${\text{\color{#FA94CF}＃　chronically  ill　　𐂯　　basic dni　　boygirl　}}$ <img alt="wing" src="https://i.postimg.cc/g0hMYR9k/pink.gif" />
 <br>
 <br>
 <br>
