@@ -1,32 +1,31 @@
-  <p align="center"> ⠀ <img width="610" height="110" alt="divider" src="https://i.postimg.cc/xCwKpxyQ/border1.png" /> 
+  <p align="center"> ⠀ <img alt="divider" src="https://i.postimg.cc/0Nm3BLb5/div1.png" /> 
 
-<br>
-<br>
-<br>
 
-   <p align="center">    <img width="405" height="284" alt="graphic" src="https://i.postimg.cc/QxrQpzdJ/cloudy.png" />
+   <p align="center">    <img alt="graphic" src="https://i.postimg.cc/90vZKN4f/devin2.png" />
 
   <div align="center">
     
-[fluffle](https://fluffle.cc/ferns)　　[ata](https://devinwolf.atabook.org/)　　[twt](https://x.com/kittyfernful)
   </div>
- <p align="center"> ${\text{\color{#ED8BBC}ᄊ jasper ou sammy　‿‿　she ╱ he　　　c+h enc　ヾ　iwcuf}}$ 
- <p align="center"> ${\text{\color{#F2A1BC}𐔌 chronically ill　　minor(13) ﹏﹏　devin c'link , sign ata ಌ}}$
- <p align="center"> ${\text{\color{#F2C7AD}＃　w2i　　offtab mainly　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
+ <p align="center"> ${\text{\color{#F2DABE} jasper　ᵒᵘ　snapple　　‿　　she ╱ he}}$ 
+ <p align="center"> ${\text{\color{#FEC892} w2i　　4teen　　　　c+h enc　ヾ　iwcuf }}$
+ <p align="center"> ${\text{\color{#FA94CF}＃　chronically  ill　　𐂯　　basic dni　　boygirl　}}$ <img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
 <br>
 <br>
 <br>
+<br>
+<br>
+ <p align="center"> ${\text{\color{#D760B7} click below 2 sign ata ﹢ such !　}}$
 <div align="center">
-    
-![label](https://komarev.com/ghpvc/?username=chanceglazer&color=F2B5B5&label=comments)
+
+  <a href="https://rentry.co/fawnfleck"><img alt="links" src="https://i.postimg.cc/8CqzMFYN/devin3.png" /></a>
+
+  ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=F76ABC&label=comments)
 
 </div>
 <br>
 <br>
 <div align="center">
     
-[art](https://x.com/cloudystormy98/status/2105030154288558094/photo/1) [credits](https://x.com/catfuner4l/status/2104870705674567890/photo/1)
     
 </div>⠀⠀⠀⠀⠀
-
-  <p align="center"> <img width="610" height="110" alt="divider" src="https://i.postimg.cc/N0VTLJnd/border2.png" />
+  <p align="center"> <img alt="divider" src="https://i.postimg.cc/6qTfDvMN/div2.png" />
