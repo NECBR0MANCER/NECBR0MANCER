@@ -20,12 +20,5 @@
   <a href="https://rentry.co/fawnfleck"><img alt="links" src="https://i.postimg.cc/8CqzMFYN/devin3.png" /></a>
 
   ![label](https://komarev.com/ghpvc/?username=chanceglazer&color=F76ABC&label=comments)
-
-</div>
-<br>
-<br>
-<div align="center">
-    
-    
-</div>⠀⠀⠀⠀⠀
+</div>⠀⠀⠀⠀
   <p align="center"> <img alt="divider" src="https://i.postimg.cc/6qTfDvMN/div2.png" />
