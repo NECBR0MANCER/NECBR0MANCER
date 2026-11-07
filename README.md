@@ -6,6 +6,7 @@
   <div align="center">
     
   </div>
+ <p align="center"> ${\text{\color{#EFEFE5} sp639　　6w5　(>。<)}}$ 
  <p align="center"> ${\text{\color{#F2DABE} jasper　ᵒᵘ　snapple　　‿　　she ╱ he}}$ 
  <p align="center"> ${\text{\color{#FEC892} w2i　　4teen　　　　c+h enc　ヾ　iwcuf }}$
  <p align="center"> ${\text{\color{#FA94CF}＃　chronically  ill　　𐂯　　basic dni　　boygirl　}}$ <img alt="wing" src="https://i.postimg.cc/g0hMYR9k/pink.gif" />
